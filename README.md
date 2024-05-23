@@ -1,2 +1,2 @@
-### Cesar Augusto de Almeida__
-### Daniel Vieira da Costa__
+### Cesar Augusto de Almeida
+### Daniel Vieira da Costa
